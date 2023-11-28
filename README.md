@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @antonycasula
 - 👀 I’m interested in neuropsychology
-- 🌱 I’m currently learning how to create a test
+- 🌱 I’m currently learning how to do good science
 - 💞️ I’m looking to collaborate on getting knowledge
 - 📫 How to reach me antonycasula@gmail.com
 
